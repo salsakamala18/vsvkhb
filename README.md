@@ -5,6 +5,9 @@
   - [Standing Cable Wrist Curl](#standing-cable-wrist-curl)
 
 
+### Kaki
+> 2023-11-25 [YouTube](https://youtu.be/cHycx4G9DpM) 10 Menit Latihan Bersama Untuk Otot Kaki Agar Memiliki Tendangan Lebih Keras [HRC Football Academy](https://m.youtube.com/@hrcfootballacademy)
+
 
 ### Sakit Pinggang
 [YouTube](https://youtu.be/xXxEEkE2IX8) 10 Gerakan Menyembuhkan Sakit Pinggang - Cuma 10 Menit! [Eh Olahraga Yuk](https://m.youtube.com/@EhOlahragaYuk)
