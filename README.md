@@ -9,6 +9,10 @@
 > 2023-11-25 [YouTube](https://youtu.be/cHycx4G9DpM) 10 Menit Latihan Bersama Untuk Otot Kaki Agar Memiliki Tendangan Lebih Keras [HRC Football Academy](https://m.youtube.com/@hrcfootballacademy)
 
 
+### Eat
+> 2022-01-19 [YouTube](https://youtu.be/af0Ij33wwho) HANYA 3 BAHAN RESEP MINUMAN PENGGEMUK BADAN [gugun HG](https://m.youtube.com/@gugunHG)
+
+
 ### Sakit Pinggang
 [YouTube](https://youtu.be/xXxEEkE2IX8) 10 Gerakan Menyembuhkan Sakit Pinggang - Cuma 10 Menit! [Eh Olahraga Yuk](https://m.youtube.com/@EhOlahragaYuk)
 
