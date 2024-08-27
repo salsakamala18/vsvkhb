@@ -9,6 +9,10 @@
 > 2023-11-25 [YouTube](https://youtu.be/cHycx4G9DpM) 10 Menit Latihan Bersama Untuk Otot Kaki Agar Memiliki Tendangan Lebih Keras [HRC Football Academy](https://m.youtube.com/@hrcfootballacademy)
 
 
+### Garden
+> 2024-07-05 [YouTube](https://youtu.be/v5uM9cRM55k) Saya Merinding Lihat hasilnya sekali siram Tanaman berbuah lebat terus sepanjang tahun [YAD GARDEN](https://m.youtube.com/@info_pertanian)
+
+
 ### Eat
 > 2022-01-19 [YouTube](https://youtu.be/af0Ij33wwho) HANYA 3 BAHAN RESEP MINUMAN PENGGEMUK BADAN [gugun HG](https://m.youtube.com/@gugunHG)
 
