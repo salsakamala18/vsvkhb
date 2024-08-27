@@ -16,6 +16,10 @@
 ### Eat
 > 2022-01-19 [YouTube](https://youtu.be/af0Ij33wwho) HANYA 3 BAHAN RESEP MINUMAN PENGGEMUK BADAN [gugun HG](https://m.youtube.com/@gugunHG)
 
+
+> 2021-05-30 [YouTube](https://youtu.be/9P01ibWyPB8) COBA INI❗️SAKIT PINGGANG, NYERI SENDI, NYERI OTOT LANGSUNG SEMBUH!? [Isma Zahira](https://m.youtube.com/@IsmaZahira)
+
+
 ### Craft
 > 2024-02-07 [YouTube](https://youtu.be/tPsUC6xWgDs) Cukup Taburkan Biji Ini Saja, TIKUS LANGSUNG PERGI SELAMANYA [IDE KREATIF](https://m.youtube.com/@IdeKreatif484)
 
