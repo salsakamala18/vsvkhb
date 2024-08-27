@@ -12,6 +12,8 @@
 ### Eat
 > 2022-01-19 [YouTube](https://youtu.be/af0Ij33wwho) HANYA 3 BAHAN RESEP MINUMAN PENGGEMUK BADAN [gugun HG](https://m.youtube.com/@gugunHG)
 
+### Craft
+> 2024-02-07 [YouTube](https://youtu.be/tPsUC6xWgDs) Cukup Taburkan Biji Ini Saja, TIKUS LANGSUNG PERGI SELAMANYA [IDE KREATIF](https://m.youtube.com/@IdeKreatif484)
 
 ### Sakit Pinggang
 [YouTube](https://youtu.be/xXxEEkE2IX8) 10 Gerakan Menyembuhkan Sakit Pinggang - Cuma 10 Menit! [Eh Olahraga Yuk](https://m.youtube.com/@EhOlahragaYuk)
