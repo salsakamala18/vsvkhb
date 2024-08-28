@@ -14,6 +14,10 @@
 > 2020-04-07 [YouTube](https://youtu.be/usM3sRTW8zg) 32 Gerakan Kordinasi ( Jumundong ) Taekwondo - Siap dibantai Pelatih [Info TKD Indonesia](https://m.youtube.com/@infotkdindonesia3771)
 
 
+### Daily
+> 2021-05-24 [YouTube](https://youtu.be/o6yg5HJToEA) Elite Sprint Training Week | Road To 20 ³ [Mathias Hove Johansen](https://m.youtube.com/@hovejoha)
+
+
 ### Garden
 > 2024-07-05 [YouTube](https://youtu.be/v5uM9cRM55k) Saya Merinding Lihat hasilnya sekali siram Tanaman berbuah lebat terus sepanjang tahun [YAD GARDEN](https://m.youtube.com/@info_pertanian)
 
