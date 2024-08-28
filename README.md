@@ -6,6 +6,8 @@
 
 
 ### Kaki
+> 2020-06-12 [YouTube](https://youtu.be/KrUPI7QD9Zg) Cara Mudah Latihan Handstand di Rumah (Part 2) [Fast Gym Channel](https://m.youtube.com/@FastGymChannel)
+
 > 2023-11-25 [YouTube](https://youtu.be/cHycx4G9DpM) 10 Menit Latihan Bersama Untuk Otot Kaki Agar Memiliki Tendangan Lebih Keras [HRC Football Academy](https://m.youtube.com/@hrcfootballacademy)
 
 
